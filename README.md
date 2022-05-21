@@ -1,0 +1,1 @@
+# stic_solution_assignment
